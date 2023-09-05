@@ -1,2 +1,10 @@
 - Bruce Tate
 - Ed Barstad
+- Doug Hall
+- Meks McClure (they/them)
+- Rich Nash
+- Nicholas Kirchner
+- Brandon Rainbolt
+- Ryan Schenk
+- Michael Minton
+- Mark Quezada
